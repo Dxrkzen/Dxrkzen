@@ -1,4 +1,4 @@
-I will make this better soon! Join the discord!
+I will make this better soon! Add the discord. 
 
 ![Add me if you want too](https://discord.c99.nl/widget/theme-1/914934929069072414.png) 
 
