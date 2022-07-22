@@ -1,2 +1,2 @@
-[![Discord Presence](https://lanyard.cnrad.dev/api/914934929069072414
+[![Discord Presence](https://api.lanyard.rest/v1/users/933085217294516244
                             )](https://dxrkz.tk)
